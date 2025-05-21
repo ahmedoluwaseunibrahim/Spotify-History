@@ -94,6 +94,6 @@ I am interested in becoming a data analyst in an organization where i can improv
 
 You can reach me on braskyconnect7@gmail.com 
  
-THANK  YOU 
+Thank  You
 
  
